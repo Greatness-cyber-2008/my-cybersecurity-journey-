@@ -31,4 +31,3 @@ Successfully attended the physical orientation for the **Airtel x 3MTT NextGen F
 - Verified my learning path for the upcoming months.
 - **Current Status:** Moving to Osun State for university resumption; transitioning to a local/virtual learning cluster in Iwo.
 
-**[IMAGE_HERE]** *(Tip: Drag and drop your best photo from the event right here)*
