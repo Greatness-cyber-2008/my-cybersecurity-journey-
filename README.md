@@ -2,7 +2,7 @@
 
 ### 🎓 About Me
 - **Level:** 100 Level University Student (Nigeria)
-- **Current Training:** TS Academy Cyber Program
+- **Current Training:** TS Academy Cyber Program, 3mtt Nextgen fellowship 
 - **Goal:** Cybersecurity Analyst (Target: Canada/Global)
 
 ---
